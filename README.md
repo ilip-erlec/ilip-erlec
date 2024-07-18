@@ -4,6 +4,8 @@
   <li>I LOVE ANIME WOMEN AND CODING :3</li>
 </ls> 
 
+<hr>
+
 IK SPREEK OOK NEDERLANDS (doe ik niet)
 
 <!--- hihihi --->
